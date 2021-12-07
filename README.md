@@ -8,4 +8,3 @@
 - 📫 How to reach me: linkedin-,email-
 - 😄 Pronouns: she/her
 - ⚡ Fact: The best brains of the nation may be found on the last benches of the classroom.
-
